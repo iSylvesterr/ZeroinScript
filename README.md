@@ -1,2 +1,2 @@
 # ZeroinScript
-dwdwdw
+kukuruyuk
